@@ -45,6 +45,17 @@
 
 
 
+
+
+
+<img width="1920" height="1080" alt="‏‏لقطة الشاشة (9)" src="https://github.com/user-attachments/assets/0d0400b1-cd3e-468f-98d8-c4bea1cda630" /><img width="1920" height="1080" alt="‏‏لقطة الشاشة (13)" src="https://github.com/user-attachments/assets/b2063488-1c99-4036-84a1-0d49744a8485" />
+
+<img width="1920" height="1080" alt="‏‏لقطة الشاشة (14)" src="https://github.com/user-attachments/assets/b12e5283-e5c9-4495-b252-f58563dee481" />
+
+
+
+
+
 ![‏‏لقطة الشاشة (264)](https://github.com/user-attachments/assets/540d2486-a34e-4494-8877-554103bd2607)
 
 
